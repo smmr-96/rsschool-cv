@@ -1,7 +1,6 @@
 # **Olga Kleshaeva**
-Russia, Balashikha
-okleshaeva@gmail.com 
-+79164139610
+okleshaeva@gmail.com  +79164139610
+
 ## **SUMMARY**
 Experienced in Digital Distribution  support, looking for a position of Business Support Manager.
 ## **EXPERIENCE**
